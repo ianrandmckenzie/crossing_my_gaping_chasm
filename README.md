@@ -8,4 +8,4 @@ Supporting Documents for a Miro Board I may eventually make public.
 
 It is easy to make pragmatic, sacrificial choices in the face of this. It is my philosophy that to do so simply perpetuates the stifling of social and emotional progress. This is my attempt to navigate a truly healthy business leader in harmony with a truly healthy business.
 
-![https://github.com/ianrandmckenzie/crossing_my_gaping_chasm/blob/main/crossing-the-chasm.jpg?raw=true](https://github.com/ianrandmckenzie/crossing_my_gaping_chasm/blob/main/crossing-the-chasm.jpg?raw=true)
+![https://github.com/ianrandmckenzie/crossing_my_gaping_chasm/blob/main/image_assets/crossing-the-chasm.jpg?raw=true](https://github.com/ianrandmckenzie/crossing_my_gaping_chasm/blob/main/image_assets/crossing-the-chasm.jpg?raw=true)
