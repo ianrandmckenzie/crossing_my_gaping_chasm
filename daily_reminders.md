@@ -5,3 +5,14 @@
 * Have an optimistic perspective about your suffering
 * What are you going to do before you die?
 * Build for an adversarial environment
+* Patience, softness, and rest
+* Seek challenge in the ways you want/need challenge
+* Honor your promise to your future self
+* Serve people, not your ego
+* Singular focus, impossible energy, unbreakable silent confidence
+* Relax your body and breathe, especially during physical or mental tension
+* You are as free and safe in this world as you are in Minecraft
+* Manufacture a cause for the effect you desire
+* Be true to yourself and have faith it is for the better for yourself and humanity
+* Free your true self from the perception, judgment, measure, and exploitation of others
+* Your task lists are a cornucopia of inconceivable opportunity
