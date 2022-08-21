@@ -1,0 +1,28 @@
+# Perspective
+## August 21, 2022
+
+## The Network State Notes
+(Contemplations from a Sunday book club that I'm in)
+
+### An analogy, encapsulating TNS separate from mention of crypto
+Network State is to social progress as Lean Startups is to technological progress.
+
+### Is BTC/ETH/Web3 actually resilient to authoritarianism?
+* So far, definitely not in the CCP
+* USA crippled Tornadocash, putting Web3 to the test against US Gov't, we may see soon
+
+### "I think cryptocurrency is a distraction."
+—@Perzoo
+
+My thoughts: I think so, too. The point he was making was about coordination failure. Decentralization is the basis for solving coordination failure. Cryptocurrency is simply an attempt at fixing coordination failure in finance/currency.
+
+### Today I Learned
+I've been misusing the word 'fiat' according to its definition.
+
+### What is money?
+Bitcoin is energy. Gold is a metal. The only difference between the two as commodities is the respective commodities' susceptibility to entropy.
+
+### How can the USA do better?
+—@cloudsport
+
+My thoughts: I love this — I always cringe at how readily the crypto community seems to be ready to throw the baby out with the bathwater.
