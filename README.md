@@ -1,5 +1,7 @@
 # Crossing My Gaping Chasm
 
+## The ladder end of my self-care journey turned open source
+
 Supporting Documents for a Miro Board I may eventually make public.
 
 "Crossing My Gaping Chasm" is the idea that creating a successful, profitable business cannot truly exist in harmony in our world if you do not first sort yourself out. And yet, even though that makes sense on the surface, reconciling who you truly are may be at odds with creating a successful business. Many people in this world who are partners, gatekeepers, adversaries, etc. have not sorted themselves out.
