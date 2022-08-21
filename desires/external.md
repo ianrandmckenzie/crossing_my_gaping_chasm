@@ -9,3 +9,4 @@
 * A practice of letting go of complex ideas by instead making whitepapers outlining the idea
 * A way to release unproductive and cynical thoughts
 * A completed digital workshop to pump out non-whitepaper'd ideas in my idea repository
+* Adherence to ../authenticity/content_creation.md

@@ -10,3 +10,4 @@
   * Is this true to me?
   * Am I awake?
   * Will my work be absent of causing harm (known or unknown)?
+* Poetry is a vehicle for releasing cynical thoughts in a way that doesn't feel as gross as more explicit communication
