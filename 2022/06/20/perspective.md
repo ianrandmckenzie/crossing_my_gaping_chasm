@@ -1,0 +1,3 @@
+# Perspective
+## June 20, 2022
+A strong connection to divinity = more personal autonomy (less controlled by outside forces, stresses, fears, anxieties)
