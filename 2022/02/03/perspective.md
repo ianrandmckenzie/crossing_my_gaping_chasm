@@ -1,0 +1,36 @@
+# Perspective
+## February 3, 2022
+
+### Hindrance from Overstimulation
+* Junk food
+* Socials/Discord w/o the express purpose of doing business†
+* Non-educational YouTube
+* Netflix/equivalents
+
+† In an ideal world, social media would be used for entertainment in many cases. However, between running a business and managing schizophrenia, that is a trap that can be too easily fallen into already.
+
+### Low-stimulus Rewarding Activities
+* Lifting weights
+* Listening to pro/personal development podcasts
+* Walk in nature
+* Reading your books backlog
+* Preparing actual meals
+* Cleaning/organizing the house
+* Drawing
+* Writing poetry
+* Exploring/integrating thoughts (Journaling)
+* Exploring/integrating thoughts (Voice memo while walking)
+* Exploring/integrating thoughts (Mindmapping \[analog or digital\]
+
+### Helpful Methods/Hacks for Starting Hard Things
+* If it's paid, focus on the service of others, rather than getting paid
+* Create focused spaces, physically and digitally
+* "Eat the frog" (make the hardest task of the day the first task)
+* Try 3-2-1-GO! — A quick way to block overthinking
+* Remember: Action -> Inspiration -> Motivation -> Action
+* "60-second rule" (just work on this thing for 60 seconds)
+* Write a specific reason for your desired actions
+  * "I need to lift weights" -> I want to deadlift 300 lbs by XYZ date
+  * "I need to make money" -> "I need to focus on income producing activities" -> Schedule a meeting with XYZ
+* Stop letting circumstance control my day – protect your schedule vigilantly
+
