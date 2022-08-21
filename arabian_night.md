@@ -1,0 +1,15 @@
+# Arabian Night
+
+As I continue to learn more about what it is that I truly want, I think I have finally distilled it into a single question that has as much honesty as I can put into it:
+
+How do I find someone who loves my ideas and would pay me to build and, if necessary, sell them — for the majority of profits?
+
+I’ve been building my entire workflow around rapid prototyping and proofing. The more prototypes I have, the more I can do market research where research is conducted for a multitude of products based on each person being interviewed.
+
+My brain is like that cave Aladdin got stuck in. Filled with treasures — all of them useless when I’m looking for a Lamp.
+
+I guess I’m just not sure if what I’m looking for is truly what I need (aka a deus ex machina influx of financial stability) or if there’s something about my personal character that needs to be changed in order to unlock a different approach.
+
+Going back to Aladdin, it’s like maybe I already have the lamp, I’ve escaped the lava and just need to climb out — I’m reaching out to Jafar to help me out of the cave. Maybe I need to fall so the lamp doesn’t get into the wrong hands? Maybe that’s leaning too much into the metaphor.
+
+My body is the cove of treasures. The Light brought you to the lamp. The dues ex machina you seek is Jafar feigning his reach to pull you out of the cave. When you fall, the genie inside the lamp will help you escape.
