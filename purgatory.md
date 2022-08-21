@@ -1,0 +1,5 @@
+# Purgatory
+
+A religious analogy of the feelings evaocative of the 'gaping chasm.'
+
+The Catholic Church holds that "all who die in God's grace and friendship but still imperfectly purified" undergo a process of purification, which the Church calls purgatory, "so as to achieve the holiness necessary to enter the joy of heaven."
