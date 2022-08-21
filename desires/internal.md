@@ -14,6 +14,9 @@
 * To SEE someone when I look at them
 * Present enough to prioritize family time
 * Lifting weights consistently
+* Removing my system of beliefs that are blocking progress
+* Finding ways that I can truly value money so that I can stop struggling with earning it
+* Identifying ways of earning money that are fully within my control
 
 ## Good to People
 * Ask more questions, bring out your genuine interest in people

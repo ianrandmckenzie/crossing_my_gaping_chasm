@@ -16,3 +16,5 @@
 * Be true to yourself and have faith it is for the better for yourself and humanity
 * Free your true self from the perception, judgment, measure, and exploitation of others
 * Your task lists are a cornucopia of inconceivable opportunity
+* You need to be clear with yourself in what you need so that your subconscious may begin providing paths toward those needs
+* Trust your fellow man & subconscious with everything that you are not in control of (but do know for certain what you can control)
