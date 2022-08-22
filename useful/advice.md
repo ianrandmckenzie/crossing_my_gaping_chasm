@@ -30,3 +30,11 @@ In atheist terms:
 ### Scripture vs. Experience
 
 You do not need to believe in [god] to verify for yourself the physical and emotional sensations & healing produced from exploring what religions sometimes attribute to the divine. Keep an open mind and use your body as your scientific instrument for measuring this phenomena.
+
+## Business Ownership
+
+### Be Aware of the 'Cycle of Success'
+1. Naive optimism
+2. Informed pessimism
+3. Valley of despair
+4. Informed optimism
