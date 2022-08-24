@@ -12,3 +12,4 @@
 * Decentralized systems/technologies diffuses the scale of greed and power.
 * Ad-revenue monetized social media scales unkind/dubious behavior.
 * What monetization structure scales kind/ethical behavior?
+* Doom and gloom around finances growing like an unruly tree. How do I start trimming?
