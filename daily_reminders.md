@@ -18,3 +18,4 @@
 * Your task lists are a cornucopia of inconceivable opportunity
 * You need to be clear with yourself in what you need so that your subconscious may begin providing paths toward those needs
 * Trust your fellow man & subconscious with everything that you are not in control of (but do know for certain what you can control)
+* You are a creator, not a businessman. Any business activities must have the creator at the center, not the creations.

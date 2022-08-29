@@ -13,3 +13,6 @@
 * Ad-revenue monetized social media scales unkind/dubious behavior.
 * What monetization structure scales kind/ethical behavior?
 * Doom and gloom around finances growing like an unruly tree. How do I start trimming?
+* How to identify and engage w/ de* missionaries?
+* How to identify and engage w/ change-makers re: SS*/De*?
+* Contemplate: Social & emotional innovation & advancement (BTC for finance, Network State for governance, ??? for Spiritual, ??? for Education, ??? for Journalism, ??? for Social Media/scaled comms)
