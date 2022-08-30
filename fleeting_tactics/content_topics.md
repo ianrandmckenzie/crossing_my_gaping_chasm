@@ -84,3 +84,6 @@ Legal: Automated and AI generated messages should indicate as much strongly in t
 Parable: People screaming "end the fed" can do so all they like, but until there is a viable, easily adoptable replacement, it's throwing the baby out with the bathwater
 
 Rehash some of the old Minecraft content (remove MC references from videos with general topics, e.g. masculinity, divinity, etc.)
+
+Voice memo recordings
+
