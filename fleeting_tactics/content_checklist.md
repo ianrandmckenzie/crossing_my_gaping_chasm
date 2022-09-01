@@ -1,5 +1,6 @@
 # Pre-Ideation, Pre-Production, & Pre-Publish Checklist
 
+* When in doubt, follow problem -> pain -> solution framework
 * Title/Thumb is 50% of entire project
   * Leaves an intriguing question/thought unanswered
 * Title is <50 characters
