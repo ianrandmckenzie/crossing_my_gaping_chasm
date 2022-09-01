@@ -38,3 +38,9 @@ You do not need to believe in [god] to verify for yourself the physical and emot
 2. Informed pessimism
 3. Valley of despair
 4. Informed optimism
+
+## Discipline / Doing Hard Things
+
+### 20 Second Rule
+* Make bad habits >20s to start doing
+* Make good habits <20s to start doing
