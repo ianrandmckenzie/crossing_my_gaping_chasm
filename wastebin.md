@@ -41,3 +41,7 @@ Everybody's an altruist until a stranger sets up a tent in their front yard.
 
 ---
 
+Why start a crypto pump and dump scheme when you could simply become a nationally elected offical and trade stocks prior to legislation being announced/passed?
+
+---
+
