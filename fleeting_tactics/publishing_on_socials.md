@@ -24,7 +24,8 @@ Current looping idea:
 * Title of video appears
 * Title fades away, video restarts on fade completion
 
-## How (Not yet determined)
+## How
+### (Not yet determined)
 Publishing targets (via GDrive? Headliner? ClickUp Zaps? Custom coded app? Whatever it is, AUTOMATIC publishing! Once proper assets are put into place, of course — scheduling option required.)
 
 ## What

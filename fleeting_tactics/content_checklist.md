@@ -1,4 +1,4 @@
-# Pre-Production & Pre-Publish Checklist
+# Pre-Ideation, Pre-Production, & Pre-Publish Checklist
 
 * Title/Thumb is 50% of entire project
   * Leaves an intriguing question/thought unanswered
@@ -19,3 +19,5 @@
 * Find a paradigm shift around like/comment/subscribe call-to-action
 * High, high, high energy in the first 60 to 120 seconds
 * Be conscious of viewers' emotion and reaction to content (good or bad)
+* Does the information solve anything or empower the viewer in some way?
+* Is it at least funny?
