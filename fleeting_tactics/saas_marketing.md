@@ -13,6 +13,9 @@ My aggregation of traditional/conventional SaaS marketing knowledge.
   * Creates or compounds social connections
 
 ## Doing the Research
+* How is the problem already being solved?
+* Start with discovery — find a community that would see this as a big win
+* Make working demo, get some traction, show customers getting value, create a business model canvas
 * It's about people who believe in the vision and are excited about the product
 * Sharing it authentically on Facebook Groups, Subreddits, Discords, etc. (Guerrilla marketing if applicable)
 * Talking to as many as people as you can to get feedback

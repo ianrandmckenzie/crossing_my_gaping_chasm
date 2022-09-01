@@ -17,6 +17,13 @@ Giving our generous following/subscribing "rewards" (all channels) AKA communica
 * Close with: We need you. Heal yourself. Do better.
 * Self-promo closing: Ending with a topic about injustice that appears to make me physically sick, pretending to vomit, cut to vomit on the ground, "Oh look!" -> Picks up object with a logo/representation that promotes something
 
+### Shorts
+Current looping idea:
+* Curtains close at the end of the video
+* Curtains open to 'beginning' of the video
+* Title of video appears
+* Title fades away, video restarts on fade completion
+
 ## How (Not yet determined)
 Publishing targets (via GDrive? Headliner? ClickUp Zaps? Custom coded app? Whatever it is, AUTOMATIC publishing! Once proper assets are put into place, of course — scheduling option required.)
 

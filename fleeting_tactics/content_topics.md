@@ -87,3 +87,7 @@ Rehash some of the old Minecraft content (remove MC references from videos with 
 
 Voice memo recordings
 
+D&D vs Real Life = the same (parable):
+* Today's politicians look like ghouls
+* Manosphere gurus look like trickster goblins that protect the establishment/elite (dragons)
+* The wealthy are dragons, hoarding mountains of gold
