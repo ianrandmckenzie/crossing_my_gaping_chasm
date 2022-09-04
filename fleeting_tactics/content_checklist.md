@@ -22,3 +22,7 @@
 * Be conscious of viewers' emotion and reaction to content (good or bad)
 * Does the information solve anything or empower the viewer in some way?
 * Is it at least funny?
+* Raise the stakes
+* Make it silly
+* Be bombastic and embrace the silly
+* Put the question in their head: Is he going to fail? Is he going to succeed?

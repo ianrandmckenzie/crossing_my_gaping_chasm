@@ -6,3 +6,4 @@
 * Truth through self-honesty
 * Humanity through empathy
 * Excellence through choice of adversity
+* Cynical but silly
